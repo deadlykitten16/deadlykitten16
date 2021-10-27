@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sydelle 
+- 👀 I'm still figuring out what i want to be in the next 10/5 years 
+- 🌱 I'm interested in learning to braid , or be a doctor  
+- 💞️ I'm an underage average girl wanting to be a doctor / Nurse 
